@@ -1,5 +1,7 @@
 # 💫 About Me:
-beginner web developer | graphic designer | video editor <br>
+-Currently pursuing B.tech in Informational Technology at Samrat Ashok Technological Institute, Vidisha
+-Passionate video editor , cinematographer , graphic designer
+-Skilled in beginner web developer | graphic designer | video editor <br>
 
 
 ## 🌐 Socials:
